@@ -28,7 +28,7 @@
 Таким образом Вас перекинет на него.
 
 Там вам уже представлен логотип и четыре прелестные дамы, описание которых можно прочитать по нажатию _"Read more"_. Кнопки будут выделены. <br>
-![example](https://drive.google.com/file/d/1opr1-sEkrZQN3GQKNSYyfzdbhb2ESTEf/view)
+![example](https://www8.online-convert.com/v2/dl/web7/download-file/8c0ff92f-777e-4d0d-87e1-1a52ff001b7a/%D0%97%D0%B0%D0%BF%D0%B8%D1%81%D1%8C%20%D1%8D%D0%BA%D1%80%D0%B0%D0%BD%D0%B0%202025-04-05%20034748.gif)
 
 Снизу также написаны комментарии о которых сказано выше. 
 
